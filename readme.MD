@@ -1,5 +1,4 @@
 ## DOSA POINT 
 
 ### Plain Dosa
-Dosa batter
-lite oil
+Dosa batter & lite oil

@@ -5,5 +5,4 @@ Dosa batter & lite oil
 
 ### Egg Dosa
 Dosa batter
-2 egg and oil
-super taste
+1/2 egg and oil
